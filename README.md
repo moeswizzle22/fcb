@@ -1,4 +1,4 @@
-fcb
+FCB
 ===
 
-Best team in the world!
+Best team in the world! (10x better than Real)
